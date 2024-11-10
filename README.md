@@ -1,3 +1,1 @@
-
-
-#### It was my favorite internship project. 
+#### It was my favorite internship project 
